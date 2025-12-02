@@ -15,7 +15,9 @@ NAMES </p closefriendsonly>
 - LOTTIE
 
 
-<p align="center"> If I'm following you then we're either friends or I think you're interesting + not much info on rentry rn, it's still a wip
+<p align="center"> If I'm following you then we're either friends or I think you're interesting
+
+<p align="center"> [Basic Info](rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](rentry.co/myprotection)
 
 
 <p align="center"><img src=https://github.com/user-attachments/assets/8216b689-8242-48c6-84e9-096f8a9fd1fb/></p>
