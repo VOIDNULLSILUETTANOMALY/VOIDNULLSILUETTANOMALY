@@ -17,8 +17,6 @@ NAMES </p closefriendsonly>
 
 <p align="center"> If I'm following you then we're either friends or I think you're interesting
 
-[Basic Info](https://rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](https://rentry.co/myprotection)
-
 
 <p align="center"><img src=https://github.com/user-attachments/assets/8216b689-8242-48c6-84e9-096f8a9fd1fb/></p>
 
@@ -31,3 +29,9 @@ $${\color{#a70000}< null > It was all his fault.}$$
 <p align="center">< player > : xXram2dieXx</player</p>
 
 $${\color{#a70000}< null > Rot in hell.}$$
+
+
+![]()
+
+
+[Basic Info](https://rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](https://rentry.co/myprotection)
