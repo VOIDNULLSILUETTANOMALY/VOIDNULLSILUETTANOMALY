@@ -31,7 +31,7 @@ $${\color{#a70000}< null > It was all his fault.}$$
 $${\color{#a70000}< null > Rot in hell.}$$
 
 
-![]()
+![ball jointed doll](https://64.media.tumblr.com/a532d2a1edbe893e4dcb10b8f00ba53b/d27aad66f93396b5-a0/s250x400/6b2e855abbcee757b781c996eae11d793dbd5c63.pnj)
 
 
 [Basic Info](https://rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](https://rentry.co/myprotection)
