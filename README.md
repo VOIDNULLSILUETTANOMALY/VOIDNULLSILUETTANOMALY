@@ -35,4 +35,4 @@ $${\color{#a70000}< null > Rot in hell.}$$
 
 <p align="center">
 
-[Basic Info](https://rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](https://rentry.co/myprotection) + [join my discord server it'll b fun](https://discord.gg/5gzM6yZeD5)
+[Basic Info](https://rentry.co/VOIDNULLSILUETTANOMALY) + [Ext Info](https://rentry.co/myprotection)
